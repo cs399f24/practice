@@ -1,3 +1,3 @@
 # practice
-Terrell is the goat
+Terel is the goat
 terrel stinks 
